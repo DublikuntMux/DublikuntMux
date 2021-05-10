@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @DublikuntMux
+- 👀 I’m interested cheat
+- 🌱 I’m currently learning python
+- 💞️ I’m looking to collaborate on my discord
